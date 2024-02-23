@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Akanksha Sharan, a CS undergrad
+- 👋 Hi, I’m Akanksha Sharan, an engineer at EY GDS
 
 
 
